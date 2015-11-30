@@ -1,2 +1,0 @@
-# GHPhotography
-Photography
